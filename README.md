@@ -74,8 +74,3 @@ Khi cân bằng được hai phía, những đặc điểm từng khiến Bảo 
 ------------
 
 Bảo Bình không mặc định là cung bị ghét. Những đặc điểm như độc lập, cứng đầu, khó đoán và có phần xa cách về cảm xúc chỉ dễ tạo ra hiểu lầm khi cách thể hiện không phù hợp với kỳ vọng của người khác. Ở chiều tích cực, đó cũng là nền tảng của tư duy riêng, sự sáng tạo và khả năng giữ vững lập trường. Vì vậy, câu trả lời cho vì sao Bảo Bình bị ghét chủ yếu nằm ở sự khác biệt trong cách họ suy nghĩ và kết nối.
-
-Tra Cứu Bản Đồ Sao | Lập & Giải Mã Bản Đồ Sao Online Miễn Phí  
-Địa chỉ: Phường Dương Nội, Hà Nội, Việt Nam  
-Điện thoại: 0962.604.394  
-Gmail: tracuubandosao@gmail.com
